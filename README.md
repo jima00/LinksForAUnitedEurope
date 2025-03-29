@@ -9,13 +9,13 @@ Do Something. Believe Me. It Will Be Enough.
 
 ## People.
 
-Mario Draghi.
-[Enrico Letta.](https://x.com/EnricoLetta)
+* Mario Draghi.
+* [Enrico Letta.](https://x.com/EnricoLetta)
 
 ## Articles in English.
 
-[Winston Churchill: United States of Europe speech.](https://winstonchurchill.org/resources/speeches/1946-1963-elder-statesman/united-states-of-europe/)
+* [Winston Churchill: United States of Europe speech.](https://winstonchurchill.org/resources/speeches/1946-1963-elder-statesman/united-states-of-europe/)
 
 ## Books in Spanish.
 
-[Enrico Letta: Europa, última oportunidad.](https://www.amazon.es/dp/8467076135?psc=1&smid=A1AT7YVPFBWXBL&ref_=chk_typ_imgToDp)
+* [Enrico Letta: Europa, última oportunidad.](https://www.amazon.es/dp/8467076135?psc=1&smid=A1AT7YVPFBWXBL&ref_=chk_typ_imgToDp)
